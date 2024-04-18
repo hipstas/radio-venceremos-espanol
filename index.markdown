@@ -17,5 +17,7 @@ El Salvador, 1981-1990
   Vera P. Burrows, autora<br>
   Luke Sumpter, editor
   <br>
+    <br>
+  <br>
 <h2>Proyecto en <a href="https://hipstas.github.io/radio-venceremos-english/">inglés</a></h2>
 <br>
